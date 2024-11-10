@@ -1,4 +1,4 @@
-[my youtube channel](https://www.youtube.com/@LunaticFirework)
+[My youtube channel](https://www.youtube.com/@LunaticFirework)
 
 text based rpg game
 
